@@ -7,7 +7,7 @@
 cn-jianwei33403
 
 ### 邀请连接:
-https://www.tesla.cn/referral/cn-jianwei33403
+[https://www.tesla.cn/referral/cn-jianwei33403](https://sourl.cn/rDRuDv)
 
 ### 使用方式
 直接点击以上连接到 Tesla 官方网站下单，您和被引荐者才能获得引荐奖励。请注意，下单时无法直接输入引荐代码，必须使用引荐链接；下单后不能添加引荐代码，即使订单尚未交付。
