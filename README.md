@@ -1,6 +1,6 @@
 # 特斯拉购买邀请码
 
-### 邀请码: cn-jianwei33403
+### 特斯拉邀请码: cn-jianwei33403
 
 ### 邀请连接: [https://www.tesla.cn/referral/cn-jianwei33403](https://sourl.cn/rDRuDv)
 
